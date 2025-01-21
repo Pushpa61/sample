@@ -1,1 +1,1 @@
-This made for traning purpose
+This made for training need.
